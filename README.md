@@ -1,2 +1,2 @@
 # Card-Game
-It is normally a card game for fun..
+It is normally a card game for enjoy...✌️
